@@ -1,0 +1,2 @@
+# party-supplies-items
+Partyglowz.com is a leading e-Commerce store which is merging continuously with the leading brands. Our vision is to be a pioneer in the diversified online party supplies domain, and we are working hard to accomplish what we have set forth. Our mission is to provide quality glow and led products at best rates. You will always find the newest and hottest selling light-up and glow items at Partyglowz.com. We always try to create accurate and realistic images of the product so that you can get an idea about the product.
